@@ -108,183 +108,227 @@ Thư Dao đặt khăn xuống mép chậu, không biết hắn chưa nghĩ tới
 
 # Chương 47: Tên chưa nằm trong sổ
 
-Người nhận hồ sơ cầm lá thư bằng hai ngón tay rồi đẩy trả qua mặt bàn, nói chưa có tên trong đội thì chưa nhận, thư này chỉ cho nàng tới hỏi chớ không thay được chỗ trong danh sách.
+Người nhận hồ sơ đẩy lá thư trở lại, chặn luôn tờ khai Thư Dao vừa đặt xuống.
 
-Thư Dao cúi ngó tờ khai mình mất nửa buổi mới chép xong, trong khi người sau lưng đã dồn tới sát cửa và có ai ho khan như nhắc nàng nhường chỗ. Nàng biết vậy mà vẫn hỏi thêm đội nào còn thiếu người, được chỉ ra bảng ngoài hiên cùng lời dặn đừng đưa tiền cho mấy người đứng bán suất bên đường.
+- Chưa có đội xác nhận thì chưa nhận. Thư này chỉ giới thiệu cô nương tới hỏi thôi.
 
-Ông áo xám ở quán trọ bữa trước cũng đợi dưới mái hiên, thấy thư nàng bị trả thì cúi ngó rồi bảo của ông cũng y vậy. Nàng hỏi ông đã coi bảng chưa, nhưng ông còn bận chờ người trong cửa đi ra nên nàng đành tự chen tới những dòng chưa bị gạch.
+- Ngoài kia còn đội nào thiếu người không?
 
-Lần mở này chỉ nhận người ở Trúc Cơ, phải đăng ký theo đội có người xác nhận, vô ngày đầu rồi ra trước giờ khóa ngày thứ chín. Nàng chép kỹ mấy điều ấy, ngó thêm dòng phí vừa được người trông cửa tô lại vì có ai cạo mực, rồi mới tính mười hai hạ phẩm tiền hồ sơ với chỗ trọ hai ngày coi mình còn chờ được tới chừng nào.
+- Coi bảng dưới hiên. Ai bán suất bên đường thì đừng đưa tiền.
 
-- Cô sửa phù được không?
+Nàng cầm giấy bước ra, thấy ông áo xám ở quán trọ cũng đang đứng đợi với lá thư trên tay. Những hàng còn trống trên bảng chẳng được mấy, trong khi hạn đăng ký đã gần. Người vào phải ở Trúc Cơ, đi theo đội có xác nhận và trở ra trước giờ khóa cửa ngày thứ chín. Mười hai hạ phẩm tiền hồ sơ với hai ngày trọ đã chi, nàng không thể cứ đứng chờ người trong cửa đổi ý.
 
-Người hỏi mặc áo ngắn màu đất, quai túi cột cao và cổ tay trái quấn sợi dây đỏ đã cũ. Thấy hắn chỉ ngó bàn tay dính mực chớ không ngó kiếm lâu, Thư Dao mới hỏi lại hắn cần sửa loại nào.
+- Cô nương sửa phù được không?
 
-- Tôi là Đỗ Hành. Người vừa đi cùng tôi có nhắc tay nghề cô ở chi nhánh vùng mỏ. Đội còn một chỗ, nếu muốn coi việc thì qua sân trọ bên kia sau giờ trưa.
+Người mặc áo màu đất đứng bên cạnh đang ngó bàn tay dính mực của nàng. Hắn mở một bọc phù, để lộ nét dưới đã tắt.
 
-Nàng hỏi hắn có đưa tên mình vô được không, hắn đáp chỗ ấy vừa có người rút nhưng phải tìm người làm được việc thay, không phải cứ trả tiền là xong. Nói rồi hắn mở bọc phù ngay trên phần quầy trống, để nàng coi nét dưới đã tắt.
+- Ta là Đỗ Hành. Có người từng thấy cô nương làm ở chi nhánh vùng mỏ. Đội ta vừa khuyết một chỗ.
 
-Mẫu không phải thứ nàng vẫn làm ở xưởng, nhưng kiểu hồi lực thì quen, nên nàng nghiêng lá giấy theo ánh sáng, lần tới chỗ người bán từng đè thêm một nét sửa. Phần lực yếu phía dưới mà dùng hết thì cả lá sẽ tắt sớm, nàng đang định lấy bút ra đã nghe hắn hỏi còn cứu được không.
+Thư Dao nghiêng lá phù ra sáng. Nét sửa đè lên đường hồi lực khiến phần dưới yếu hẳn, dùng thêm một lần có thể tắt luôn.
 
-- Muội phải thử rồi mới nói giá được.
+- Chỗ này bị sửa sai. Muốn biết còn cứu được không phải thử mới chắc.
 
-- Tôi chưa hỏi giá. Tôi muốn biết cô có thấy chỗ hỏng không thôi.
+Đỗ gấp bọc lại trước khi nàng lấy bút.
 
-Hắn gấp bọc lại trước khi nàng chạm bút, nhắc cứ qua sân trọ coi rồi nhận lời cũng chưa muộn, còn bây giờ hắn có người đang đợi. Tới khi hắn vô hàng, người vừa trả thư cho nàng lại gọi tên hắn rồi mở một quyển sổ khác, khiến Thư Dao đứng ngó mãi dòng hắn ký mà chưa biết có dòng nào dành được cho mình hay không.
+- Vậy trưa nay qua sân trọ đối diện. Làm được việc thì bàn tiếp.
 
-Ra khỏi đám đông, nàng mới hỏi nhỏ Tạ Cửu nghĩ người ấy ra sao.
+- Huynh có thể xác nhận cho ta?
+
+- Nếu cô nương thay được người vừa rút. Ta cần người sửa phù dọc đường.
+
+Hắn quay vào quầy, người nhận hồ sơ lập tức gọi tên rồi mở sổ cho ký. Thư Dao nhìn dòng bút ấy, cất lá thư vào túi.
+
+Ra khỏi đám đông, nàng mới hỏi nhỏ:
+
+- Huynh thấy người đó thế nào?
 
 - Tới coi lá phù trước đã.
 
 - Muội đang hỏi người mà.
 
-- Ta có quen hắn đâu. Muội ngó hắn còn lâu hơn ta đó thôi.
+- Ta có quen hắn đâu. Cứ nghe hắn cần gì, rồi coi mình có làm nổi không.
 
-Giọng hắn gắt hơn thường ngày, còn bên sân trọ có một người đang phơi dược trên mẹt, nghe Đỗ gọi thì vung tay đuổi đám chim xuống cọc. Thư Dao cất giấy, ghé quán ăn một cái bánh rồi ngồi chờ cho tới đúng giờ hẹn.
+Nàng ngó qua sân trọ, nơi Đỗ vừa đặt bọc phù xuống bàn, rồi tìm chỗ ngồi đợi tới giờ hẹn.
 
 ---
 
 # Chương 48: Người thuê và người đi cùng
 
-Buổi hẹn trưa đầu tiên thiếu loại mực Đỗ gửi ở chỗ khác, thành ra mãi tới sáng mồng bảy họ mới lấy đủ mà thử. Thư Dao vừa sửa xong lá đầu thì người phơi dược ngoài sân đã cầm cả bọc lên, dội chút nước vô mép rồi bóp nhẹ, làm lớp giấy dán tách ra để lộ một góc phù.
+Mực thử tới trễ, mãi sáng mồng bảy Thư Dao mới sửa xong lá đầu. Đỗ vừa dẫn lực qua nét cuối thì người phơi dược ngoài sân đã lấy bọc ngoài, dội nước lên mép giấy dán.
 
-- Ra ngoài đợi một trận mưa là mất công sửa hết — cô nói.
+- Phù sửa được mà bọc hở vầy, qua một trận mưa cũng hết dùng.
 
-Thư Dao đưa tay đỡ, nhưng cô đã tránh qua rồi đặt bọc lên miếng vải khô của mình. Đỗ giới thiệu cô tên Lục Nghi, giữ phần thuốc, vừa nói xong đã bị cô sửa lại rằng dược hiếm là của riêng cô, thứ thường ai cần thì tính chớ không lấy đồ đem về bù chung cả đội.
+Nàng đón lại lá phù trước khi nước chạm vào, còn Đỗ kéo ghế ngồi xuống.
 
-Lục mặc áo vải gọn tay, móng cắt sát, bên má còn đỏ chỗ vừa gãi lúc phơi dược. Cô nghe Thư Dao tự giới thiệu thì gật, rồi cúi coi nét sửa khô chưa, lực nối có đều không mới trả Đỗ thử, tới khi lá sáng được xuống tận nét dưới hắn mới chịu ngồi bàn tiếp.
+- Lục Nghi, người đi cùng chúng ta. Còn thiếu một người sửa phù, cô nương nhận thì phải làm được cả lúc đang đi đường.
 
-- Người tôi mời trước đã theo đội khác. Chỗ này cần người sửa phù được dọc đường, chớ vô rồi cô chạy theo món mình thích, để việc chung nằm đó thì tôi không nhận.
+- Việc đội tới đâu? Ta cũng có thứ cần tìm.
 
-Nàng hỏi việc nào không thể hoãn, hắn đáp cứu người với giữ lối chung phải làm trước, còn muốn kiếm món riêng thì bàn đường cho rõ từ ngoài. Nghe vậy nàng hỏi phần mình được tính ra sao, khiến hắn ngó nàng một hồi mới nhắc cô còn chưa nói đang kiếm thứ gì.
+- Cứu người, giữ lối chung phải làm trước. Muốn kiếm món riêng thì nói từ ngoài, đừng vô đó rồi bỏ người khác lại.
 
-- Muội phải coi đường với cách chia trước. Nếu chỉ làm công mà phải chịu hết nguy hiểm thì muội không nhận đâu.
+Thư Dao đặt lá phù đã khô lên bàn, chờ hắn thử nốt mới đáp:
 
-Lục bật cười, kéo mẹt thuốc ra khỏi bóng cột đang dài tới.
+- Vậy cho ta coi đường với cách chia. Nếu chỉ nhận làm công thì ta không chịu hết nguy hiểm như người cùng đội được.
 
-- Anh hỏi luôn cô ấy có tính lấy hết bí cảnh không, vậy cho lẹ.
+Lục bật cười, còn Đỗ trải bản đồ ra. Ba tuyến đã vạch từ một trăm hai mươi năm trước, hắn chỉ đối được vị trí cửa với bảng niêm hiện giờ.
 
-Đỗ liếc cô rồi trải bản đồ, chỉ ba tuyến mà họ có thể chọn. Năm ghi ở góc đã cách đây một trăm hai mươi năm, cho nên lối cửa còn đối được với bảng niêm chớ đường trong ấy chỉ là chỗ người xưa từng đi, hắn cũng không giấu chuyện mình chưa biết hiện giờ nó ra sao.
+- Trong đó còn đi được như vầy hay không, ta chưa biết. Ai muốn tới đâu cứ nói, tới nơi phải coi đường rồi mới tính chuyện lấy đồ.
 
-Ai nhắm tuyến nào phải nói trước, người có lối rút riêng không được bỏ người khác tại đoạn vừa cùng dùng, còn cây cỏ chưa thấy thì chưa ai ghi được là thuộc về mình. Thư Dao nghe tới đó mới chạm túi giữ ngọc, hỏi nếu chỉ cần một phần của cây làm vật liệu luyện thân thì có thể ghi mục tiêu riêng không.
+- Ta cần một phần của cây làm vật liệu luyện thân. Có thể ghi mục tiêu riêng không?
 
-- Mục tiêu thì ghi được. Còn tới nơi có lấy được hay không phải coi đã.
+- Ghi được. Cây chưa thấy thì chưa hứa chia cho ai.
 
-Nàng nhận cách ấy, rồi mấy bữa sau đều tới sân đúng giờ để Đỗ thử tay nghề lặp lại. Có lá làm được, có lá phải bỏ, Lục cứ đem bọc thử ướt rồi nói thẳng chỗ nào chưa chịu nổi, còn Tạ Cửu đợi về phòng mới nhắc nàng những chỗ hắn nhớ, chỗ chưa chắc lại xin coi bản gốc thêm.
+Lục kéo bản đồ về phía mình, chấm vào khu thấp.
 
-Chiều ngày thứ chín, Đỗ dời túi dược của Lục để chừa chỗ xếp đồ, nhưng cô đang rửa tay đã bước tới lấy về, bảo cái đáy còn hong chưa khô, cứ để đó giùm. Hắn nói quên rồi xách túi mình đi, còn Thư Dao dịch ghế khỏi miếng nắng của cô để sửa tiếp lá phù trên bàn.
+- Dược ta cần ở đây. Còn túi dược hiếm ta mang theo là đồ riêng, ai cần phải hỏi, đừng tới lúc dùng rồi mới nói tưởng của chung.
+
+Thư Dao gật đầu, lấy giấy chép lại điều kiện. Mấy bữa sau nàng trở lại thử những lá khác, có lá sửa được, có lá phải bỏ. Đỗ đều tự dẫn lực qua trước khi nhận, còn Lục thử lớp bọc trong nước, thành thử tới ngày thứ chín vẫn chưa ai nhắc chuyện ghi tên.
+
+Chiều ấy Đỗ đặt một ống phù khác trước mặt nàng.
+
+- Mẫu cũ cô nương làm được rồi. Coi thêm bản này, nếu mang theo được thì bớt phải mua ngoài.
+
+Thư Dao mở ống, thấy đường hồi lực tách làm hai nhánh. Nàng đưa gần kiếm hơn nhưng chưa nghe Tạ Cửu nói gì.
 
 ---
 
 # Chương 49: Một nét không được giấu
 
-Đỗ đem ra một bản gốc Thư Dao chưa từng vẽ, tự mở ống rồi đứng giữ góc để Lục khỏi phải dời mẹt thuốc. Bên ngoài vẫn là phù bảo hộ, nhưng chỗ hồi lực chia đôi, nàng ngó lâu mới dám thử, còn hắn dặn bản này chỉ cho dùng việc đội, không phải bán hay cho riêng.
+- Bản này chỉ dùng cho việc đội, không được chép bán — Đỗ nói.
 
-Nàng nhận lời rồi vẽ hỏng lá đầu ngay tại chỗ chia, lá thứ hai mới được nửa đoạn. Tạ Cửu nhắc tay nàng chạy mau quá, vậy mà sang lá thứ ba chính hắn lại biểu giữ thêm, khiến lực dồn tới mép và mực xém thành một chấm.
+Thư Dao nhận lời rồi thử ngay chỗ hồi lực chia nhánh. Hai lá đầu đều hỏng, tới lá thứ ba Tạ Cửu mới nhắc nàng chậm tay, giữ thêm ở đoạn rẽ. Nàng vừa làm theo thì mực xém thành một chấm, luồng sáng tắt ngang mặt giấy.
 
-Thư Dao đặt bút xuống đúng lúc Lục nhặt lá thứ hai lên coi ánh hồi, hỏi nó đã dùng được chưa.
+Lục cầm lá thứ hai lên, nơi ánh phù còn le lói.
 
-- Chưa đâu. Nét cuối không giữ nổi, cô đừng xếp vô túi.
+- Lá này dùng được chưa?
 
-- Tôi hỏi để biết có phải đổi số đồ đã tính không. Vô trong đó rồi đâu có ai vẽ bù liền cho mình.
+Thư Dao nhìn chén mực đã vơi, nghĩ tới chỗ trống Đỗ còn giữ cho mình rồi đặt bút xuống.
 
-Nàng ngó hai lá trước cùng chén mực đã xuống một quãng, biết mình vừa tính giữ lại một lá gần đạt cho Đỗ đỡ đổi ý, nên rốt cuộc phải tự gọi hắn từ ngoài cổng vô coi. Hắn nghe xong không hỏi nàng cố thêm được không, chỉ cầm bản gốc gần cửa rồi hỏi còn cần bao lâu.
+- Chưa. Nét cuối không giữ nổi, đừng xếp vô đồ mang theo.
 
-- Muội chưa biết. Mẫu cũ sửa được, chớ mẫu này chưa đủ để hứa mang vô.
+Nàng gọi Đỗ trở lại, đưa cả ba lá hỏng cho hắn coi.
 
-- Vậy mấy bữa tới cô làm gì?
+- Mẫu cũ ta sửa được. Mẫu này chưa đủ chắc để hứa với huynh.
 
-- Nếu huynh còn cho dùng bản thì muội thử tiếp. Nhưng đừng tính mấy lá này vô số đã có.
+- Còn cần bao lâu?
 
-Đỗ đã chừa tên nàng trên tờ đang điền, kiếm người khác phải thử lại từ đầu mà buổi nhận cuối thì không đợi. Hắn gom ba lá hỏng, dặn ghi lượng hao cho rõ rồi ra mua loại thông dụng thay, để nàng ngồi với cái bút chưa cất được.
+- Ta chưa biết. Nếu huynh cho dùng bản thì ta thử tiếp, nhưng phải tính mua phù thay từ bây giờ.
 
-Tối về, Tạ Cửu nói chỗ giữ thêm có lẽ hắn nhớ lộn cách chia lực của mẫu khác, nhưng nàng hỏi mẫu nào thì hắn chưa gọi được tên. Nàng lật lá thử, đánh dấu đoạn hắn sửa đúng mà mình đã giữ được ba lượt, còn phần chưa chắc thì chừa lại, tính mai hỏi người của Đỗ xem ai từng dùng bản này.
+Đỗ ngó tờ danh sách đã chừa tên nàng. Kiếm người mới lúc này cũng phải thử lại, trong khi buổi nhận cuối chẳng còn xa, nên hắn gom ba lá hỏng, dặn ghi lượng hao rồi đi mua loại thông dụng thay.
 
-- Huynh đừng ráng nhớ cho ra ngay tối nay.
+Tối về, Cửu đợi nàng mở lại bản chép mới lên tiếng:
 
-- Ta nhớ được thì muội khỏi ngồi đợi người ta.
+- Chỗ giữ thêm hồi sáng, có lẽ ta nhớ lộn sang mẫu khác.
 
-- Nhưng bữa nay muội đã phải biểu hắn đi mua đồ khác rồi đó.
+- Mẫu nào?
 
-Nói xong nàng biết mình gắt quá, nhưng vẫn chưa muốn rút lời, chỉ gấp mấy lá hỏng để mai đối vật liệu rồi cùng hắn làm một lượt dưỡng kiếm. Đêm ấy hai người không nhắc tiếp mẫu mới, tới ngày mười lăm Đỗ lấy bảng hao, nàng vẫn phải nhận là làm được hơn trước chớ chưa đều sau ba lượt.
+Hắn im một lúc rồi nhận chưa nhớ ra. Thư Dao khoanh phần đã thử được ba lượt, chừa trống đoạn chia lực.
 
-Hắn đối lượng mực còn, xếp bản gốc về ống rồi dặn cứ làm thứ mình chắc, đừng đợi tới bữa vô mới nói thiếu. Thư Dao hỏi vậy còn giữ chỗ không, hắn ngó Lục đang đếm dược rồi hẹn sáng mai đi ghi tên, còn nàng xé đôi lá cuối tuy mặt giấy còn nguyên, cất phần rách để đối mực. Tạ Cửu gọi một tiếng, nàng ngước lên chờ mà hắn lại không nói tiếp.
+- Huynh chưa chắc thì cứ nói chưa chắc. Bữa nay muội đã phải biểu người ta đi mua đồ khác rồi đó.
+
+- Ta chỉ muốn muội khỏi phải ngồi đợi người ta.
+
+Nàng biết hắn muốn giúp, vậy mà nhìn mấy lá hỏng vẫn chưa dịu xuống được, đành gấp giấy cất đi rồi đặt kiếm lên đùi dưỡng hồn. Những ngày sau nàng thử tiếp và hỏi thêm người từng dùng mẫu, nhưng tới ngày mười lăm vẫn không giữ đều được cả ba lượt.
+
+Đỗ thu bản gốc vào ống, gạch số phù ấy khỏi phần nàng phụ trách.
+
+- Cứ làm thứ đã chắc. Sáng mai đi ghi tên với ta.
+
+Thư Dao xé đôi lá cuối để khỏi lẫn với phù dùng được. Tạ Cửu gọi nàng một tiếng, nhưng tới khi nàng ngước lên thì hắn lại thôi.
 
 ---
 
 # Chương 50: Phần nàng xin giữ
 
-Thư Dao vừa nhắc cần một lá sen còn nguyên thì Đỗ đã ngước lên hỏi nàng biết chỗ nào có. Nàng nói chỉ biết loại mình cần làm vật liệu luyện thân, chưa biết có tìm được không, hắn mới xoay bản đồ cho coi vành nước từng được người đi trước ghi lại.
+- Ta cần một lá sen còn nguyên, dùng làm vật liệu luyện thân.
 
-Đỗ muốn phần hạt đem về thử trồng, trong khi Lục nghe họ chỉ nói tuyến hồ đã đặt mẹt xuống, nhắc dược mình cần nằm ở khu thấp khác hướng. Cô không chịu tới cửa rồi mới được hẹn tiện thể kiếm sau, nên Đỗ phải ghi cả tuyến của cô trước khi ba người bàn phần sẽ cùng làm.
+Thư Dao vừa nói xong, Đỗ đã xoay bản đồ về phía nàng.
 
-Nàng không đưa hết danh mục ra, chỉ nói một lá còn nguyên cũng đã khiến người giữ sổ cạnh đó liếc qua, thành thử phải hạ giọng. Đỗ ghi mục tiêu chớ không ghi trước cây sẽ thuộc ai, đồng thời dặn đồ chung dùng giữ đường và cứu người phải có người coi, đồ riêng không được tự lấy vì mình đang cần.
+- Biết chỗ nào có không?
 
-- Lỡ hai người cùng muốn một món thì dừng lại bàn. Đừng chém xong rồi kêu người kia tới chia phần còn lại.
+- Chỉ biết loại cần tìm, chưa biết trong đó có hay không.
 
-- Còn người ngoài không chịu bàn thì sao?
+Hắn chỉ vành nước người đi trước ghi lại. Đỗ muốn lấy hạt về thử trồng, nhưng Lục chặn tay hắn khi thấy đường vạch thẳng tới hồ.
 
-- Gặp rồi mới tính được. Cô có biết ai khác cũng đang kiếm đúng thứ đó đâu.
+- Tuyến dược của ta ở khu thấp. Đừng tới cửa rồi mới bảo tiện đường sẽ ghé.
 
-Hắn đứng lên lấy giấy nhóm, còn Thư Dao ngó phần vừa ghi mà chưa thể yên bụng. Lục hỏi bọc đồ đã thử ngấm nước chưa, dặn nàng cột gọn thứ cần giữ khô, chớ xuống bùn rồi mới lôi ra coi thì không kịp nữa.
+Đỗ đặt bút xuống, ghi cả hai tuyến trước khi bàn phần chung. Thư Dao giữ kín những món khác trong danh mục, chỉ theo ngón tay hắn coi nơi có thể rẽ.
 
-Mấy bữa hoàn tất danh sách, cả ba phải tới đối tên, tay nghề đã thử, người xác nhận và cảnh giới. Lá thư chi nhánh không thay được lần coi ấy, nên Thư Dao trả ba mươi hạ phẩm lệ phí của mình theo bảng công bố rồi cất phiếu riêng, không để lẫn vô túi đồ chung.
+- Mục tiêu ghi ở đây, còn gặp cây thì phải coi nó trước — hắn nói. — Hai người cùng cần một món phải dừng lại bàn. Đừng lấy xong mới kêu người kia tới chia phần còn lại.
 
-Tới khe trả thẻ, nàng nghe người ta gọi họ Trần rồi đọc đủ tên mới bước lên nhận. Góc thẻ còn nhám vì mới cắt, nàng cứ miết tới khi Tạ Cửu nhắc đừng bẻ cong nó, bấy giờ mới bọc vô vải mà bỏ sát ngực.
+- Nếu phải dùng phù riêng của ta để giúp cả đội qua chỗ nguy hiểm thì tính sao? — nàng hỏi.
 
-Đỗ hỏi tên có đúng không, nàng coi lại một lượt rồi gật. Hắn muốn ghé coi dây, Lục cần thêm bao chống ướt, nên ba người đi cùng tới chỗ rẽ mới tách, hẹn bữa đóng đồ cho đủ.
+- Phải hỏi cô nương trước. Dùng bao nhiêu lá thì ghi lại bấy nhiêu để sau này cả đội tính phần bù, không ai được tự tiện lấy.
 
-Thư Dao về trước để đọc lại cách chọn và giữ lá trong ngọc, bởi nếu vô tới nơi mới biết mình tách sai một đường gân thì có suất trong đội cũng không cứu được chiếc lá. Nàng trải hình ra cạnh kiếm, lần này đọc cả phần sau đoạn hái, tới chỗ hong và cất mới bắt đầu chép.
+Chốt xong, cả ba mới tới đối tên và cảnh giới. Thư Dao nộp ba mươi hạ phẩm lệ phí theo bảng, nghe người giữ sổ gọi đủ tên mình rồi bước lên nhận thẻ. Đỗ đã đứng chờ ngoài cửa, lần này trong danh sách hắn ký có cả tên nàng.
+
+- Giữ thẻ kỹ. Bữa đóng đồ tới cho đủ — hắn dặn.
+
+Nàng cất thẻ sát ngực rồi về mở ngọc giản. Tìm được sen mới là nửa việc, cắt rách đường gân hoặc cất sai cách đều có thể làm chiếc lá vô dụng.
+
+- Muội coi luôn đoạn sau đi — Cửu nói khi nàng lật qua hình lá. — Phần hong với giữ khô đó.
+
+Nàng kéo ngọn đèn lại gần, chép tiếp cho tới hết cách bảo quản rồi mới đặt bút xuống.
 
 ---
 
 # Chương 51: Ba túi đồ
 
-Lục Nghi lấy que nhỏ chọc vô đáy bao đang thử nước, vừa thấy rỉ một giọt thì người bán đã giật lại, cãi vải tốt cũng chịu không nổi cách cô làm. Cô đưa cái khác biểu ông thử giống vậy cho coi, khiến ông phải đổi bao mà không cãi thêm.
+Thư Dao đặt ba lá hộ thân cạnh chiếc ống giữ sen, rồi đưa phần còn lại cho Đỗ coi. Hai mươi bốn hạ phẩm đã chi, chín mua phù, mười lăm trả bao, ống, đồ khô, dầu và vật dụng đi đường.
 
-Thư Dao đứng bên giữ ống mới mua, đợi thử luôn lớp bọc ngoài trong lúc nhớ lại đoạn giữ sen mình đã đọc hai tối. Lá phải đủ tuổi, gân liền, chỗ cắt không được kéo rách vô mặt, rồi còn phải hong trong bóng cho se mới cuộn theo chiều gân, chớ cất ướt hoặc phơi nắng gắt đều hỏng từ mép vào.
+- Ba lá này của riêng ta. Nếu dùng việc chung thì ghi theo lượt đã bàn.
 
-Trong ngọc có chỉ cách phân biệt gân đổi xám, nàng chép ra giấy nhỏ rồi tập ngó cho khỏi lộn với bóng trên hình. Giữ đúng cách được chín tháng, đủ qua quãng nàng còn phải chờ tới cuối năm, nhưng cái ống vẫn cần lót khô với khoảng thoáng, không phải cứ đóng nắp là xong.
+Đỗ gật đầu, chia đồ đội thành ba phần và đưa nàng một bản sao đường. Hắn giữ bản còn lại, còn Lục bổ sung chỗ dược cần tìm rồi lấy chiếc ống lên coi.
 
-Hai mươi bốn hạ phẩm lần mua này gồm chín cho ba lá hộ thân, mười lăm còn lại trả bao, ống, đồ khô, dầu cùng vật dụng đi đường. Nàng bọc riêng ba lá, cất chỗ rút được bằng một tay, còn ở sân trọ Đỗ đã chia đồ chung thành ba phần để mỗi người mang.
+- Lá phải hong trước khi cuộn. Trong đó có đủ chỗ với đủ giờ cho cô nương làm không?
 
-Lục nhận dược thường đã bàn, nhưng túi riêng vẫn để cạnh mẹt. Thư Dao hỏi bản sao đường ai giữ, Đỗ đưa nàng một bản và giữ bản kia trong người, còn Lục vẽ thêm tuyến cây mình biết.
+- Phải kiếm chỗ râm cho se mặt, rồi cuộn theo gân, lót khô mà chừa thoáng. Ta đã chép cả rồi.
 
-- Hỏng bản nào thì nói liền, đừng tưởng còn người khác cầm — hắn dặn.
+- Vậy nhớ tính giờ ấy vô đường về.
 
-Thấy nàng cất ba lá phù, Đỗ hỏi có tính vô đồ chung không, nàng nói là đồ riêng, nếu dùng việc chung sẽ ghi theo lượt. Hắn trả bọc lại, còn Lục cầm chiếc ống lên nhắc phải chừa cả chỗ khô lẫn thời gian hong, bằng không cuộn chiếc lá ướt vô chỉ làm nó hư lẹ hơn.
+Thư Dao gấp bản hướng dẫn bỏ vào lớp bọc khô. Lá đủ tuổi, gân còn nguyên mới dùng được, giữ đúng cách có thể được chín tháng, nhưng nếu cuộn lúc còn ướt thì chưa ra khỏi bí cảnh đã hỏng. Nàng đem ống với đồ đội qua thử nước cạn, chỉnh lại chỗ buộc để tới lúc cần không phải tháo hết hành lý.
 
-- Muội biết, phải tính giờ ấy nữa.
+Những ngày chờ cửa mở, thư Trần Phúc báo xưởng vẫn làm hàng thường, không gửi thêm tiền. Nàng hồi âm nơi nhận thư sau chuyến đi, dặn trong chín ngày đóng cửa đừng chờ tin từng bữa.
 
-- Nhớ tính nghen. Lúc vội ai cũng nói mình biết hết.
+Tối cuối tháng, nàng đối lần chót thẻ vào với hai bản đường rồi kê kiếm lên đùi. Cửu đợi nàng làm xong lượt dưỡng mới hỏi:
 
-Những ngày còn lại họ tập mang đồ qua nước cạn ngoài trấn rồi coi đường tới cửa, còn thư Phúc tới trễ một ngày vì chuyến hàng kẹt bến. Xưởng vẫn làm hàng thường, chỉ có khách đổi giờ nhận, ông ghi luôn tên người với ngày hẹn mới và không gửi tiền kèm theo.
+- Ống giữ lá cất đâu rồi?
 
-Nàng trả lời nơi có thể nhận thư sau khi ra, dặn đừng chờ tin từng ngày lúc cửa bí cảnh đóng. Chép tới đó nàng lại ngó tờ niêm chín ngày, ngồi một hồi mới cất bút để dưỡng kiếm.
+- Trong túi, thử qua nước rồi. Ba lá hộ thân cũng để chỗ rút được.
 
-Tạ Cửu hỏi nàng kê chỗ nằm chưa, rồi nhắc đừng đặt kiếm đè lên chiếc ống còn rỗng. Nàng dời nó qua, tiện kể chuyện Lục thử bao làm ông bán đỏ mặt, khiến hắn hỏi cây que nhọn tới đâu rồi hai người cãi một hồi về chuyện bao tốt có nên chịu được đầu que ấy không. Tới khi thôi nói, nàng mới nhận ra bữa nay hắn chưa hỏi thêm chừng nào tới hồ.
+Hắn đáp một tiếng, không hỏi thêm bao lâu mới tới hồ. Thư Dao đặt tay lên chuôi kiếm thêm một lúc rồi cuốn bản đường cất đi, sáng mai Đỗ sẽ gọi trước khi trời sáng.
 
 ---
 
 # Chương 52: Qua cửa
 
-Thư Dao nghe Đỗ gọi trước khi thấy rõ mặt hắn, bởi vừa qua khoảng sáng sau lưng là nước đã ngập bãi lau phía trước. Nàng giữ thẻ bằng tay không cầm kiếm, theo tiếng gọi bước qua gờ đất nơi Lục đang dùng cán dao gạt bùn để đặt túi.
+- Sang phải, đừng bước thẳng!
 
-Người theo sau lội thẳng rồi hụt một bước, khiến cả nhóm mới qua phải dừng sát cửa mà kéo về. Đỗ gọi nàng nhích sang phải, nàng đưa túi qua trước mới lách được người, tới chỗ trống thì lau thẻ rồi cất vô trong áo.
+Tiếng Đỗ vọng tới ngay khi Thư Dao vừa qua khoảng sáng. Phía trước nàng, nước đã ngập bãi lau và một nhóm mới vào đang kéo người hụt xuống chỗ trũng trở lên. Nàng men theo gờ đất tới cạnh Lục, ngoái lại thấy lối trên bản đồ chìm giữa nước sâu.
 
-Bản đồ trải trên cẳng tay Đỗ chỉ một lối bây giờ nằm giữa nước sâu, mấy mỏm đá còn đó mà chỗ nối đã mất. Một người bên nhóm trước thử lội, trở lên thì chiếc giày ở lại dưới bùn, khiến Lục hỏi năm trước có phải người ta đi đây không.
+Đỗ trải bản ra, đối hai mỏm đá còn lộ rồi gập lại để dò nền bằng gậy.
 
-- Lần trước, chớ không phải năm trước — Đỗ đáp, gập bản lại rồi dùng gậy dò mép nền.
+- Chỗ nối mất rồi. Phải tìm đường khác.
 
-Dưới chỗ gậy chạm có một vệt sáng mảnh chạy qua, vừa lướt tới là luồng linh lực hắn đưa xuống bị bẻ lệch. Hắn rút gậy lên, biểu hai người đợi cho vệt sáng qua khỏi rồi mới thử lại, tới lượt thứ hai đầu gậy đã không còn bị kéo ngang như trước.
+Đầu gậy vừa chạm bùn thì một vệt sáng mảnh lướt qua, bẻ lệch luồng linh lực hắn đưa xuống. Hắn rút gậy, giữ tay ngăn hai người tới gần, đợi dải sáng đi khỏi mới thử lại. Lần này đầu gậy không bị kéo ngang nữa.
 
-Thư Dao đưa kiếm gần mặt nước, nghe Tạ Cửu nói có một luồng lạnh vừa lướt sát bao, nhưng xa hơn hắn không biết. Nàng ngó những dải sáng đứt quãng dưới bùn, sao lại chỗ chúng đi qua để khỏi đặt người vô đúng lúc, trong khi Đỗ tìm được một đoạn bờ khô lệch hướng đường cũ.
+- Cấm chế còn chạy dưới nước — hắn nói. — Coi nó đi qua đâu rồi hẵng bước.
 
-Lục đánh dấu lên gốc lau, hắn chọn thêm mỏm đá cao vì nước còn lên thì dấu thấp sẽ mất. Thư Dao đối vị trí cửa với hai mốc rồi bọc giấy lại, nhớ mình phải trở ra đúng giờ ngày thứ chín, không thể chỉ theo đường vô mà đoán đường về.
+Thư Dao hạ kiếm gần mép bờ, nghe Cửu lên tiếng sát chuôi:
 
-Qua dải cây, Lục chỉ xuống chỗ bờ thấp có mùi cây dập, nói đi theo đám đá khô trên bản sẽ lỡ tuyến dược. Đỗ ngó trời rồi đồng ý, còn nàng đợi hai người bàn xong, tay vẫn đặt trên chuôi kiếm.
+- Có luồng lạnh vừa lướt qua. Xa hơn ta chưa biết.
 
-Tạ Cửu hỏi bọc ngọc có ngấm không, nàng nói đã cất trong lớp khô, hắn đáp một tiếng rồi thôi chớ chẳng nhắc hồ như nàng đang chờ. Lúc lên đường, Lục ném qua sợi dây để cột gọn vạt áo, nàng nhận rồi đi theo, còn người mất giày phía sau vẫn ngồi tháo bùn khỏi chân trước khi đuổi kịp đội mình.
+Nàng ghi hướng những dải sáng đứt quãng trong lúc Đỗ tìm được bờ khô lệch khỏi đường cũ. Lục đánh dấu lên gốc lau, hắn thêm một mốc đá cao để nước lên vẫn còn nhận ra, rồi cả ba đối lại vị trí cửa trước khi đi tiếp.
+
+Qua dải cây, lối khô dẫn chếch về phía hồ, còn Lục dừng bên bờ thấp có mùi cây dập.
+
+- Dược ở hướng này. Theo đám đá kia là lỡ tuyến của ta.
+
+Đỗ ngó trời rồi mở bản đường. Thư Dao chạm túi đựng ống sen, chờ hắn chọn.
+
+- Xuống khu thấp trước. Tới chỗ khó đi phải tính giờ trở lại, ngày thứ chín cửa khóa thì chẳng đợi ai.
+
+Nàng cất bản sao, theo Lục xuống bờ. Kiếm khẽ chạm bên hông mà Cửu không nhắc tới hồ, phía sau họ dải sáng lại lướt qua đúng chỗ đường cũ đã chìm.
 
 ---
 
