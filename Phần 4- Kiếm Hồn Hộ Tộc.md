@@ -1120,7 +1120,7 @@ Túi riêng còn hai trăm bốn mươi ba hạ phẩm. Nàng kéo dây buộc, 
 
 Nàng hé ống, màu gân dưới ánh đèn vẫn còn rõ.
 
-- Chưa đổi màu, không có vết hỏng. Hái từ tháng hai mươi chín, vẫn còn trong hạn giữ.
+- Chưa đổi màu, không có vết hỏng. Từ lúc hái trong bí cảnh tới giờ mới chừng bảy tháng. Muội vẫn hong và cất đúng cách, chưa qua hạn chín tháng.
 
 - Đọc lại cách tháo cuộn.
 
@@ -1180,7 +1180,7 @@ Trong thạch thất, bóng giá kiếm đổ chênh chếch trên nền.
 
 Thư Dao mặc áo luyện, tóc cột cao, đặt kiếm lên giá thấp rồi mở bản chép. Ánh ngọc nhàn nhạt chạm cạnh tờ ghi ngày, nàng lần tới mốc đủ một năm kể từ khi phần thượng mở.
 
-Đêm năm trước còn trước ngày tròn hai năm. Đến giờ đã cuối tháng ba mươi sáu, chỉ còn một quãng ngắn phải chờ, qua khe mái mây xám lờ mờ trôi chậm.
+Đêm mở ngọc năm trước còn chưa tròn hai năm từ lúc Vân Ẩn bị diệt. Nay đã gần tròn ba năm sau đêm ấy, chỉ còn một quãng ngắn nữa là đủ một năm luyện phần thượng, qua khe mái mây xám lờ mờ trôi chậm.
 
 - Ngồi xuống đi — Tạ Cửu nói.
 

@@ -1246,7 +1246,7 @@ Thư Dao mời vào, xin để cửa mở. Trần Tuấn hỏi chuyện tộc sa
 
 - Huynh đọc ngoài này rồi. Chờ muội xếp bàn, người ta muốn nghe sẽ nghe đủ.
 
-Chiếc nhẫn ngừng xoay. Trần Phúc kéo bàn dài ra, chân rít trên nền, ghế cho người ghi biên bản đặt sát phía sáng.
+Chiếc nhẫn ngừng xoay. Trần Phúc kéo bàn dài ra, chân rít trên nền, ghế cho người chép sổ đặt sát phía sáng.
 
 Khoản nợ được mở trước.
 
@@ -1262,7 +1262,7 @@ Hắn nhìn chữ ký rồi chuyển tay sang sổ nguyên liệu.
 
 Nàng chỉ số nhập, số giao và phần hao. Người ghi biên bản cúi viết, ngòi bút sàn sạt trên trang rồi dừng ở khoản mực hỏng. Thư Dao gọi phù sư ra, đứng sang bên cho ông chỉ lại trên mẫu.
 
-Ông nói vấp câu đầu, ngón tay lau vào tay áo, đến nét tắc lại nói liền một mạch. Lá cũ và lá sửa được thử ngay cạnh nhau, ánh phù lấp lóe rồi tắt, người ghi biên bản cúi nhìn đủ mới chép.
+Ông nói vấp câu đầu, ngón tay lau vào tay áo, đến nét tắc lại nói liền một mạch. Lá cũ và lá sửa được thử ngay cạnh nhau, ánh phù lấp lóe rồi tắt, người chép sổ cúi nhìn đủ mới chép.
 
 Tờ công sửa phù thuê và phiếu mua tinh thiết tám mươi đặt ra sau đó.
 
@@ -1316,7 +1316,7 @@ Trần Phúc đọc hai lần, định treo lên quầy, nàng nhờ cất cùng
 
 - Lo. Ta nhắc, muội sẽ nghe ta thay vì nhìn kiếm.
 
-Nàng nhìn đầu ngón mình còn dính mực biên bản, một lúc mới buông chuôi. Cuối tháng sau, ba mươi tư lá giao đủ, khế được gạch hết, Trần Phúc giữ giấy rất lâu mới tự ghi đã tất lên bìa.
+Nàng nhìn đầu ngón mình còn dính mực từ sổ ghi lời đối chất, một lúc mới buông chuôi. Cuối tháng sau, ba mươi tư lá giao đủ, khế được gạch hết, Trần Phúc giữ giấy rất lâu mới tự ghi đã tất lên bìa.
 
 Người học việc được nhận thêm từ vùng, nét nhập môn có thể công khai dạy ở gian sau. Kiếm Quyết và ngọc không qua cánh cửa ấy, thu dư chia vốn cùng phần mua dần vật liệu, nàng chưa có đủ bộ nào để tính chuyện đúc thể.
 

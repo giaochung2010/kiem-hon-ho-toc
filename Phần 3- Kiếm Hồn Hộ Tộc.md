@@ -54,7 +54,7 @@ Nàng lấy giấy ra, miết nhẹ mép ngoài đã hơi mềm rồi đưa sát
 
 - Mai chúng ta ghé chỗ nào trước, huynh?
 
-- Người ở trạm nói cuối phố có chỗ nhận hồ sơ.
+- Người ở trạm nói cuối phố có chỗ nhận giấy ghi danh.
 
 - Cái đó muội nghe rồi. Muội muốn hỏi… Thôi, để mai tới coi.
 
@@ -108,7 +108,7 @@ Thư Dao đặt khăn xuống mép chậu, không biết hắn chưa nghĩ tới
 
 # Chương 47: Tên chưa nằm trong sổ
 
-Người nhận hồ sơ đẩy lá thư trở lại, chặn luôn tờ khai Thư Dao vừa đặt xuống.
+Người nhận giấy ghi danh đẩy lá thư trở lại, chặn luôn tờ khai Thư Dao vừa đặt xuống.
 
 - Chưa có đội xác nhận thì chưa nhận. Thư này chỉ giới thiệu cô nương tới hỏi thôi.
 
@@ -116,7 +116,7 @@ Người nhận hồ sơ đẩy lá thư trở lại, chặn luôn tờ khai Th�
 
 - Coi bảng dưới hiên. Ai bán suất bên đường thì đừng đưa tiền.
 
-Nàng cầm giấy bước ra, thấy ông áo xám ở quán trọ cũng đang đứng đợi với lá thư trên tay. Những hàng còn trống trên bảng chẳng được mấy, trong khi hạn đăng ký đã gần. Người vào phải ở Trúc Cơ, đi theo đội có xác nhận và trở ra trước giờ khóa cửa ngày thứ chín. Mười hai hạ phẩm tiền hồ sơ với hai ngày trọ đã chi, nàng không thể cứ đứng chờ người trong cửa đổi ý.
+Nàng cầm giấy bước ra, thấy ông áo xám ở quán trọ cũng đang đứng đợi với lá thư trên tay. Những hàng còn trống trên bảng chẳng được mấy, trong khi hạn ghi danh đã gần. Người vào phải ở Trúc Cơ, đi theo đội có xác nhận và trở ra trước giờ khóa cửa ngày thứ chín. Mười hai hạ phẩm phí ghi danh với hai ngày trọ đã chi, nàng không thể cứ đứng chờ người trong cửa đổi ý.
 
 - Cô nương sửa phù được không?
 
@@ -136,7 +136,7 @@ Thư Dao nghiêng lá phù ra sáng. Nét sửa đè lên đường hồi lực 
 
 - Nếu cô nương thay được người vừa rút. Ta cần người sửa phù dọc đường.
 
-Hắn quay vào quầy, người nhận hồ sơ lập tức gọi tên rồi mở sổ cho ký. Thư Dao nhìn dòng bút ấy, cất lá thư vào túi.
+Hắn quay vào quầy, người nhận giấy ghi danh lập tức gọi tên rồi mở sổ cho ký. Thư Dao nhìn dòng bút ấy, cất lá thư vào túi.
 
 Ra khỏi đám đông, nàng mới hỏi nhỏ:
 
@@ -760,7 +760,7 @@ Người thợ ghi những mức đường dẫn đã chịu được với tìn
 
 Tối đó Cửu nhờ đọc lại đoạn hắn chưa nghe rõ, tới dòng cuối mới bảo đúng loại cần kiếm. Nàng đặt phiếu lên trên bản giá, vuốt góc đã quăn rồi hôm cuối đợt xem còn quay lại xin chép thêm một dòng tình trạng, phải chờ thợ đóng xong khay của lượt khác mới được coi.
 
-Ra cửa trời đã tối, người ngoài phố đang tính phiên mồng một tháng ba mươi mốt, còn hơn một tháng mà số tiền nhắc tới mỗi lúc một xa cái túi nàng cầm. Thư Dao về quán theo lối cũ, trong đầu bắt đầu xếp tên những nơi mình có thể tới hỏi, nhưng tới trước cửa vẫn chưa chọn được chỗ đầu tiên.
+Ra cửa trời đã tối, người ngoài phố đang tính phiên đấu còn hơn một tháng nữa mới mở, đúng ngày mồng một mà số tiền nhắc tới mỗi lúc một xa cái túi nàng cầm. Thư Dao về quán theo lối cũ, trong đầu bắt đầu xếp tên những nơi mình có thể tới hỏi, nhưng tới trước cửa vẫn chưa chọn được chỗ đầu tiên.
 
 ---
 
@@ -782,7 +782,7 @@ Quản sự chỗ này chưa gặp nàng, đọc giấy còn cho người đối
 
 - Thứ cô làm được, với mấy năm sau còn làm được tới đâu. Mang tên người nhận hàng qua thôi thì chưa đủ.
 
-Nàng hỏi sản lượng hiện giờ có được xét không, ông chưa nhận lời mà sắc mặt đã khiến nàng phải cất bớt phần tính trong đầu. Có giấy hẹn để mai tới vẫn hơn cứ đứng ngoài bảng ngó giá, nàng xin đủ dấu rồi đem về, trải giấy ra đối lại phần mình sẽ phải nói.
+Nàng hỏi số phù xưởng đang làm có được xét không, ông chưa nhận lời mà sắc mặt đã khiến nàng phải cất bớt phần tính trong đầu. Có giấy hẹn để mai tới vẫn hơn cứ đứng ngoài bảng ngó giá, nàng xin đủ dấu rồi đem về, trải giấy ra đối lại phần mình sẽ phải nói.
 
 Cửu hỏi từ trưa nàng ăn gì chưa, nàng mới nhớ cái bánh trong túi đã cứng, cắn không nổi thì hắn biểu xuống lấy cháo.
 
@@ -802,13 +802,13 @@ Từ quản sự không mở tờ giá bảo vật trước, mà lật giấy gi
 
 - Năm nghìn thì không ai tới phòng này chỉ để hỏi. Tôi cần biết cô đem lại được gì.
 
-Bảng sản lượng xưởng được đặt lên mà ông ngó xong vẫn lắc đầu, mấy trăm lá phổ thông một tháng đủ nuôi cửa tiệm chớ không bảo đảm cho khoản mua ấy. Nàng ngồi lại, nói mình có thể tập loại cao hơn rồi tự nhận mẫu ở sân Đỗ còn chưa đều, tới khi ông hỏi mới vẽ nét gốc trên giấy thường cho coi, không đem nguyên bản người ta cho mượn ra bán.
+Bảng số phù xưởng làm được được đặt lên mà ông ngó xong vẫn lắc đầu, mấy trăm lá phổ thông một tháng đủ nuôi cửa tiệm chớ không bảo đảm cho khoản mua ấy. Nàng ngồi lại, nói mình có thể tập loại cao hơn rồi tự nhận mẫu ở sân Đỗ còn chưa đều, tới khi ông hỏi mới vẽ nét gốc trên giấy thường cho coi, không đem nguyên bản người ta cho mượn ra bán.
 
 Thợ được gọi tới hỏi giữ được đoạn nào, hỏng lúc nào, dùng giấy với mực ra sao, khiến nàng phải nhớ qua từng lá đã bỏ mới trả lời. Ông nói thử được nhưng chưa tính là hàng, Từ quản sự mới lấy một ống niêm khác, nói bên mình có mẫu cơ sở loại cao, đang cần nguồn thợ làm tới phẩm tốt cho khách chờ.
 
 Vài người cũ đã ngừng nhận, ông muốn xét nàng trước khi bàn ba năm mua riêng phần thượng phẩm. Nghe hai chữ riêng, nàng hỏi ngay hàng xưởng đang làm tính sao, ông đáp chuyện ấy còn bàn, trước mắt cô đã thử được lô nào đâu.
 
-Giấy điều kiện cho nàng đem về, bản mẫu vẫn ở phòng, vật liệu cấp từng lượt, đồ thử làm ra thuộc bên cấp. Họ cho dùng một gian có giường trong dãy thợ, ăn chung bếp từ lúc vào thử tới hết mồng tám tháng ba mươi mốt để đợi phiên rồi thu xếp về, khoản ấy thương hội chịu, không cộng vô tiền ứng.
+Giấy điều kiện cho nàng đem về, bản mẫu vẫn ở phòng, vật liệu cấp từng lượt, đồ thử làm ra thuộc bên cấp. Họ cho dùng một gian có giường trong dãy thợ, ăn chung bếp từ lúc vào thử cho tới hết bảy ngày sau phiên đấu, đủ chỗ đợi phiên rồi thu xếp về, khoản ấy thương hội chịu, không cộng vô tiền ứng.
 
 Nàng hỏi gian có khóa không, nhận chìa rồi mới nhận lời tới thử, còn ra đường Cửu đã gọi về quán lấy nốt đồ. Đóng cửa gian mới, nàng nói mình chưa hứa ba năm, hắn đáp nhưng muội đang tính hứa, nàng cãi chỉ tính thử, giá chưa nói mà cũng chưa biết con làm được bao nhiêu.
 
@@ -856,9 +856,9 @@ Thợ vẫn giữ ba lá hỏng trên bàn, tới khi Từ ký phẩm của lô 
 
 Người đọc khế nàng thuê gạch chữ xưởng trước, lấy mười hai hạ phẩm cho công đọc với bản lưu rồi nói mình không nhận chọn ký thay. Thư Dao kéo tờ nháp về, hỏi ngay có phải họ muốn mua luôn phần Lâm sư phó với mấy người đang ở nhà làm không, bởi nàng chỉ bàn hàng của mình, còn trung phẩm trở xuống xưởng vẫn phải bán để nuôi việc thường.
 
-Từ quản sự không chịu bỏ liền, nói ứng khoản lớn mà nàng đem công làm toàn loại khác thì thương hội chỉ còn ngồi đợi. Nàng hỏi vậy ông có nhận hết tiền vốn với công của cả xưởng không, ông ngó bảng sản lượng thấp rồi nói chưa mua phần đó, thành ra bản nháp phải để qua bữa sau mới sửa được.
+Từ quản sự không chịu bỏ liền, nói ứng khoản lớn mà nàng đem công làm toàn loại khác thì thương hội chỉ còn ngồi đợi. Nàng hỏi vậy ông có nhận hết tiền vốn với công của cả xưởng không, ông ngó bảng số phù ít ỏi rồi nói chưa mua phần đó, thành ra bản nháp phải để qua bữa sau mới sửa được.
 
-Ba năm tính từ tháng ba mươi hai tới hết sáu mươi bảy, đủ ba mươi sáu tháng, chỉ phù thượng phẩm chính nàng làm trong cấp nghề đã thử mới phải giao riêng. Hàng người khác, hàng trung phẩm với hạ phẩm vẫn bán tự do, còn bản gốc công pháp, ngọc riêng, sổ tộc và tài sản người nhà không đem vô bảo lãnh khoản cá nhân này.
+Thời hạn ba năm bắt đầu từ tháng đầu tiên sau phiên đấu, tính đủ ba mươi sáu tháng rồi chấm dứt, chỉ phù thượng phẩm chính nàng làm trong cấp nghề đã thử mới phải giao riêng. Hàng người khác, hàng trung phẩm với hạ phẩm vẫn bán tự do, còn bản gốc công pháp, ngọc riêng, sổ tộc và tài sản người nhà không đem vô bảo lãnh khoản cá nhân này.
 
 Tới giá, họ lại ngồi lâu, bốn trăm một lá đạt là mốc tính theo mẫu với nguồn khách hiện có, không giữ chết cả ba năm nếu vật liệu hoặc phẩm đổi. Hai bên phải đối giá trước lô, nhận hàng vô kho rồi không được tự hạ xuống, còn bất đồng phẩm thì đem mẫu giữ qua thợ độc lập theo cách ghi trong khế.
 
@@ -870,7 +870,7 @@ Mẻ đầu mười hai lượt tốn một nghìn bốn trăm bốn mươi, gi�
 
 - Ngừng cấp lượt sau rồi cùng coi lỗi. Không tự tính như cô đã nhận đủ hàng đạt.
 
-Người đọc khế bắt ghi chi nguyên liệu đối theo hao thực, không vừa trừ nguyên bó vừa trừ lại mức bình quân mỗi lá, và không tự kéo quỹ tộc hoặc khoản dược bốn nghìn vô lấp. Thư Dao hỏi luôn trường hợp tháng chỉ được sáu lá, Từ lật phụ lục, bên dưới còn kịch bản ít hơn, tính ra phần ứng thiếu tới hết hạn chớ không bắt nàng tin chỉ có số tám mới được sống.
+Người đọc khế bắt ghi chi nguyên liệu đối theo hao thực, không vừa trừ nguyên bó vừa trừ lại mức bình quân mỗi lá, và không tự kéo quỹ tộc hoặc khoản dược bốn nghìn vô lấp. Thư Dao hỏi luôn trường hợp tháng chỉ được sáu lá, Từ lật phụ lục, bên dưới còn cách tính nếu số lá được nhận ít hơn nữa, tính ra phần ứng thiếu tới hết hạn chớ không bắt nàng tin chỉ có số tám mới được sống.
 
 - Hết ba năm còn nợ thì hàng có phải bán riêng nữa không?
 
@@ -956,7 +956,7 @@ Thư Dao tính những ngày còn lại với số lượt dẫn lực đã dùn
 
 Nàng chờ mà hắn chỉ hỏi tối nay còn tính vẽ nữa không, nàng đáp không, bữa nay cất bút vẽ rồi. Vô phòng, nàng lại cầm bút thường báo Phúc, viết quá nửa trang mới tới điều cần nói, đành đọc lại mà gạch bớt phần kể giá phiên.
 
-Chỉ phù thượng phẩm chính nàng làm phải giao riêng từ tháng ba mươi hai tới hết sáu mươi bảy, hàng người khác cùng trung phẩm, hạ phẩm vẫn bán như trước. Nàng ghi mình sắp về, nhờ báo nhà bình an, còn khế đủ gửi theo chuyến có người giữ giấy sẽ tới sau thư ngắn.
+Chỉ phù thượng phẩm chính nàng làm phải giao riêng trong ba năm, kể từ tháng đầu tiên sau phiên đấu, hàng người khác cùng trung phẩm, hạ phẩm vẫn bán như trước. Nàng ghi mình sắp về, nhờ báo nhà bình an, còn khế đủ gửi theo chuyến có người giữ giấy sẽ tới sau thư ngắn.
 
 Cửu hỏi sao không kể đã nhận món, nàng nói về rồi kể, hắn đáp một tiếng lại xin giữ tờ nháp. Nàng hỏi làm gì, hắn nói muốn nhớ tên người vừa tới, thành ra nàng đọc cho hắn rồi kẹp vô sổ việc, tới tối vẫn nhớ ngòi bút người ấy đã khựng ngay chỗ nào trên tên mình.
 
@@ -1044,7 +1044,7 @@ Thư Dao chép tên dược từ ngọc ra để hỏi giá, có một chữ nh�
 
 Nàng nhờ hắn đọc chỗ vừa chừa, nghe giống vị đã có nên hỏi lại, hắn mới biểu ngó cái nét nhỏ ở bên. Hai tên được chép cạnh nhau, ngày nhà dược có thể giao cũng tính ra, nhưng khoảng sớm nhất nàng phải tự gạch vì chưa tới lúc dùng.
 
-Từ cuối tháng hai mươi tư mở phần thượng tới giờ mới bảy tháng, còn điều kiện đủ một năm phải chờ hết tháng ba mươi sáu. Nàng ngó cái hộp với ống lá đã đem về, rồi lại quay qua tờ ghi ngày, nối những lần kiểm lá vào khoảng còn trống trước khi cầm bút vặn nút mực.
+Từ đêm mở phần thượng tới giờ mới bảy tháng, còn chừng năm tháng nữa mới đủ một năm luyện phần ấy. Nàng ngó cái hộp với ống lá đã đem về, rồi lại quay qua tờ ghi ngày, nối những lần kiểm lá vào khoảng còn trống trước khi mở nắp lọ mực, cầm bút chấm lại.
 
 - Muội tính bỏ bớt mấy lượt hả? — Cửu hỏi.
 

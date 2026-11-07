@@ -410,7 +410,7 @@ Buổi chiều không ai vẽ nhanh. Họ để riêng mực cần lắng, thử
 
 Đến ngày thứ tám, họ có một xấp đều hơn.
 
-Quản sự thương hội tới xem, lấy lá giữa xấp thay vì lá trên. Ông thử, hỏi chỗ chưa ưng rồi gật rằng có thể bàn hợp đồng. Thư Dao chưa trả lời số lượng. Nàng đếm lại số bị giữ, nghe người học phía cửa sổ thở ra khi lá của cậu được xếp sang bên đạt.
+Quản sự thương hội tới xem, lấy lá giữa xấp thay vì lá trên. Ông thử, hỏi chỗ chưa ưng rồi gật rằng có thể bàn khế ước. Thư Dao chưa trả lời số lượng. Nàng đếm lại số bị giữ, nghe người học phía cửa sổ thở ra khi lá của cậu được xếp sang bên đạt.
 
 Ông phù sư lấy một xấp khác, đặt cạnh tay nàng.
 
@@ -704,7 +704,7 @@ Nàng đặt bút lại vào nghiên, giữ hai tay trên đầu gối.
 
 - Có người nấu cơm cho ta. Hồi ấy ta không nghĩ tới.
 
-Thư Dao nhìn thanh kiếm, định hỏi người ấy là ai. Hắn im trước khi nàng hỏi, và nàng không biết khoảng im ấy là nhớ hay quên. Cuối cùng nàng chỉ bảo mai sẽ nhờ người lấy thêm một bảng giá vật tư phổ thông.
+Thư Dao nhìn thanh kiếm, định hỏi người ấy là ai. Hắn im trước khi nàng hỏi, và nàng không biết khoảng im ấy là nhớ hay quên. Cuối cùng nàng chỉ bảo mai sẽ nhờ người lấy thêm một bảng giá vật liệu thường dùng.
 
 Chiều ngày hai mươi tư, một người đi đường thư của tộc ghé tiệm. Trần Phúc đặt phong thư mới bên cạnh sổ đơn đã tất, nói nó rời trung tâm hôm trước nữa.
 
@@ -876,7 +876,7 @@ Khi ghi tên người mua, quản sự nhận ra khoản nợ cũ đã tất c�
 
 Ông cười, viết nốt. Thư Dao nhìn vệt gạch hết nợ ở mép trang. Hồi trả lần đầu, nàng đứng bên này bàn với một cái túi nhẹ đi quá nhanh. Hôm nay vẫn phải tính từng khoản nhưng được chọn nhận hay không.
 
-Trước khi đi, nàng hỏi ông có bảng vật tư dưỡng huyết thông thường không. Ông đưa một bản giá, những loại hàng hiếm chỉ có tên nguồn hỏi, không có số để nàng lập tức trả.
+Trước khi đi, nàng hỏi ông có bảng dược liệu và vật liệu dưỡng huyết thông thường không. Ông đưa một bản giá, những loại hàng hiếm chỉ có tên nguồn hỏi, không có số để nàng lập tức trả.
 
 - Cô muốn tìm thứ nào?
 
@@ -1602,7 +1602,7 @@ Nàng ký dòng đầu, rồi kéo sổ quyền tới.
 
 - Không. Quyết đúng theo mẫu mình đã ký thì giữ. Con sai chuẩn phải sửa chuẩn riêng, không đẩy ngược lỗi ấy xuống người đã theo.
 
-Trần Phúc đọc lại từng câu, gạch hai chỗ có thể hiểu là ông được sửa mọi hợp đồng. Thư Dao ngồi nghe; lần này nàng không nóng ruột vì mất thêm một buổi. Hai ngày chờ vừa rồi đã mất rồi, câu chữ nhanh hơn không trả chúng lại.
+Trần Phúc đọc lại từng câu, gạch hai chỗ có thể hiểu là ông được sửa mọi khế ước. Thư Dao ngồi nghe; lần này nàng không nóng ruột vì mất thêm một buổi. Hai ngày chờ vừa rồi đã mất rồi, câu chữ nhanh hơn không trả chúng lại.
 
 Tới chiều, xưởng làm tám lá bù.
 
@@ -1722,7 +1722,7 @@ Thư Dao không bước theo phần còn lại ngay. Nàng đặt hòm ngoài m�
 
 Lần này đầu gối không phải rời chỗ chắc để đưa đồ vào trước. Hòm trượt đi theo hai điểm dây, tới chỗ vướng nàng hạ xuống và xoay, đúng cách ngoài sân. Chậm, nhưng không phải bám một tay vào vách để tay kia kéo cả phần đang mắc.
 
-Tới gian kín, nàng lấy giờ, nhìn chiều dài bóng đèn và lượng dầu. Còn đủ buổi để đặt đường tải, chưa có nghĩa nên động vật hôm nay.
+Tới gian kín, nàng lấy giờ, xem ngọn bấc và lượng dầu còn trong đèn. Còn đủ buổi để đặt đường tải, chưa có nghĩa nên động vật hôm nay.
 
 Tạ Cửu nhận ra mép khí cũ. Hắn chỉ chỗ tránh, không đẩy hồn lực theo khoảng tối để nhìn thay mắt nàng. Thư Dao tự đưa đèn tới, lần này nhìn cả bệ cứng hai bên trước khi nhìn xương.
 
@@ -1828,7 +1828,7 @@ Nàng chưa trả lời. Từng nhịp một, nàng kéo phần cốt về mép 
 
 Mặt gãy lộ ra sạch hơn nàng dám mong. Vân còn kín chạy qua phần lòng khô, chỗ ăn xám đã được để ở ngoài. Hai người kiểm đủ dấu trước khi nàng lót và buộc. Chưa thể gọi xong cho tới khi ra ngoài, nhưng phần cần không còn nằm ngoài tầm tay.
 
-Nàng nhìn những nêm sẽ phải bỏ. Một sợi dây tốt, đoạn gỗ còn mới, phần cốt ngoài trắng hơn trong bóng đèn. Tay nàng nhấc lên theo thói quen muốn thu dọn.
+Nàng nhìn những nêm sẽ phải bỏ. Một sợi dây tốt, đoạn gỗ còn mới, phần cốt ngoài trắng hơn dưới ánh đèn dầu. Tay nàng nhấc lên theo thói quen muốn thu dọn.
 
 Tạ Cửu không nói gì. Thư Dao tự hạ tay xuống, cắt phần dây mình được phép mang mà không rút đầu chịu lực.
 
@@ -2044,7 +2044,7 @@ Ngày sau, nàng tới nơi niêm thông báo của bên nhận đăng ký. Tờ
 
 Lịch này không chép từ người rao ở chợ. Thư Dao kiểm xong mới ghi vào giấy của mình.
 
-Nàng không hỏi chắc có lá sen hay không trước mặt người xếp hàng. Có người đi tìm khoáng, có người muốn mua tin cho thế lực mình; tên một tài nguyên có thể khiến người khác nhớ ai đã hỏi nó. Nàng chỉ hỏi phần người chưa có suất phải làm gì, ai nhận hồ sơ và hạn muộn nhất nên có mặt ở đâu.
+Nàng không hỏi chắc có lá sen hay không trước mặt người xếp hàng. Có người đi tìm khoáng, có người muốn mua tin cho thế lực mình; tên một tài nguyên có thể khiến người khác nhớ ai đã hỏi nó. Nàng chỉ hỏi phần người chưa có suất phải làm gì, ai nhận giấy ghi danh và hạn muộn nhất nên có mặt ở đâu.
 
 Ra khỏi hàng, nàng ngồi ở quán nước, trải lịch trên đầu gối. Hai tháng trước mắt bỗng ngắn hơn những tháng nàng vừa sống qua. Đi tới nơi hỏi quyền, chờ xét, dò đường, tất cả đều ăn vào đoạn còn lại; chưa có việc nào cho phép nàng ở nhà tới khi xưởng không còn chuyện gì nữa.
 
