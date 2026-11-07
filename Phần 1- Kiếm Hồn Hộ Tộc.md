@@ -66,6 +66,26 @@ Vân Mặc khó nhọc nuốt một hơi thở.
 
 Tạ Cửu cúi đầu nhận lời.
 
+Vân Mặc bỗng níu cổ tay hắn. Những ngón tay gầy cố khép lại, kéo hắn cúi xuống sát bên.
+
+- Cửu… còn một chuyện.
+
+Thư Dao định ghé lại, nhưng máu dưới tay lại trào lên, nàng vội ghì chặt vạt áo trước ngực người. Giữa tiếng gỗ cháy ràn rạt, nàng chỉ nghe được mấy tiếng:
+
+- Nếu sau này… con còn trở về…
+
+Giọng sư phụ chìm đi. Môi người vẫn động, Tạ Cửu cúi thấp hơn, lúc đầu chỉ nghe, rồi bàn tay đang đỡ vai người chợt cứng lại.
+
+- Sư phụ, chuyện ấy…
+
+Vân Mặc siết cổ tay hắn, nói tiếp mấy lời mà Thư Dao không nghe rõ. Nàng nhìn miệng người, càng cố nghe thì tiếng đập cửa phía sau càng dội tới, rung bần bật cả giá kinh sát vách.
+
+Sau cùng, Tạ Cửu khẽ gật đầu.
+
+- Đệ tử nhớ rồi.
+
+Bàn tay níu hắn từ từ lơi ra.
+
 Một đường nứt chạy dọc vách, bụi vôi rào rào đổ xuống chiếc giá sau lưng. Thư Dao đưa mắt tìm cửa bên, rồi nhìn lại sư phụ, tự tính nếu cõng người thì phải đi qua chỗ xà gãy nào.
 
 Miếng ngọc được đặt vào tay nàng.
@@ -344,7 +364,121 @@ Hắn không nói gì, cũng không giục nàng nín.
 
 Đêm ấy, Thư Dao nằm trên lớp áo ở chỗ khô nhất, hỏi có phải giữ chuôi cả lúc ngủ không. Hắn bảo chỉ cần chạm khi muốn nghe nói, nàng đặt tay cạnh kiếm, sau cùng vẫn nắm lấy.
 
-Hai ngày tiếp, nàng dò lối suối, tìm quả dại, chỉ ra ngoài lúc không còn thấy đèn. Những lúc có thể nghỉ, nàng để kiếm nơi mát, nghe hắn nói được hết một câu mới hỏi thêm.
+Sáng ra, ánh trời lờ mờ rọi qua màn thác. Thư Dao ngồi dậy, vuốt lại chỗ vải cuộn quanh chuôi rồi hạ phần lưỡi xuống hõm nước, bàn tay vẫn giữ trên kiếm.
+
+- Sư phụ còn dặn riêng huynh chuyện gì?
+
+- Luyện hết phần hạ rồi mới mở ngọc. Muội cũng nghe mà.
+
+- Sau đó nữa. Người gọi huynh cúi xuống.
+
+Mũi kiếm chìm dưới hõm nước, bất động. Nàng đợi, chỉ nghe nước tí tách rơi từ một khe đá ngay bên vai.
+
+- Người có gọi ta lại?
+
+Thư Dao ngẩng phắt đầu.
+
+- Người nắm cổ tay huynh. Huynh còn hỏi “Sư phụ, chuyện ấy…”, rồi người nói thêm. Muội đang giữ vết thương, không nghe được.
+
+- Ta nhớ lúc nhận ngọc. Sau đó ta đưa ngọc cho muội.
+
+- Giữa hai việc ấy còn có đoạn này.
+
+- Không thể nào.
+
+Giọng hắn đã rõ hơn đêm trước. Thư Dao cúi sát xuống mặt thép, nhưng dưới nước chỉ thấy bóng mình chập chờn.
+
+- Huynh nghĩ muội nhớ nhầm?
+
+- Ta vừa đọc hết phần hạ. Từng chữ vẫn còn. Sao sư phụ dặn ngay sau đó mà ta lại không nhớ?
+
+Nàng cũng không biết trả lời, chỉ đưa ngón tay giữ lấy mép vải đang tuột. Đêm qua, sư phụ còn níu cổ tay Tạ Cửu để dặn thêm, nàng đã nhìn thấy rõ.
+
+- Người có nói chuyện trở về. Rồi huynh đáp “Đệ tử nhớ rồi”.
+
+Ngoài hang có tiếng cành khô rắc một cái. Thư Dao lập tức thu kiếm, nép vào vách, đợi con chim nhỏ sà khỏi bụi cây bên kia dòng nước mới thở ra.
+
+Tạ Cửu vẫn chưa nói.
+
+- Có lẽ khi ấy ta nghe không rõ, — sau cùng hắn đáp. — Trong Kiếm Các ồn quá.
+
+- Vậy mùa đông đầu tiên muội nhập môn, huynh dạy muội luyện kiếm ở đâu?
+
+- Sân trước.
+
+- Sân trước sụt mất một góc, sư phụ cho sửa suốt ba tháng. Hai ta luyện ở hành lang phía đông. Huynh không nhớ sao?
+
+- Muội hỏi chuyện ấy làm gì?
+
+Nàng rời mắt khỏi cửa hang, nhìn xuống thanh kiếm trong lòng.
+
+- Hồi đó muội cứ xoay người là đụng cột. Huynh lấy than vạch chỗ đứng, hôm sau bị người quét mất, huynh lại vạch.
+
+Nàng còn nhớ hắn phải ngồi xuống, dùng mảnh than còn một mẩu mà kéo đủ hai dấu trên nền. Đến lượt mình tập, hắn đứng ở đầu hành lang, nghiêng kiếm cho khỏi vướng mái hiên thấp.
+
+Nước trong hõm khẽ gợn. Tạ Cửu cất tiếng rồi ngừng, một lúc sau mới hỏi:
+
+- Cả mùa đông đều ở đó?
+
+- Tới lúc tuyết tan mới ra sân. Có lần muội tập mãi không được, huynh còn…
+
+- Khoan. Đừng kể tiếp.
+
+Nàng khép miệng. Thanh kiếm nằm yên dưới tay, qua một hồi lâu vẫn không có lời đáp, chỉ tiếng thác rì rầm hắt vào chỗ hai người ẩn nấp.
+
+- Ta nhớ hôm đưa muội tới Kiếm Các, — hắn nói. — Nhớ mùa xuân sư phụ cho muội đổi kiếm. Nhưng ở giữa…
+
+Hắn dừng lại. Thư Dao đợi thêm, rồi mới hỏi:
+
+- Còn mùa mưa hai năm trước? Hai ta chép kinh ở gác tây.
+
+- Gác ấy bị dột.
+
+- Vâng. Sách ướt phải gỡ từng trang, có mấy bộ không hong được, sư phụ bảo chép lại. Huynh ngồi đối diện muội hơn một tháng.
+
+- Ta biết mái gác bị dột.
+
+- Vậy huynh nhớ hai ta chép bộ nào không?
+
+Hắn không đáp. Nàng chợt thấy câu hỏi của mình quá gấp, bèn ngồi lùi vào vách, bàn tay vẫn đặt trên chuôi.
+
+- Không cần tên kinh. Hôm nào ở đó cũng được.
+
+Tiếng nước chảy tràn qua một bờ đá nhỏ. Hắn đã từng ở ngay trước mặt nàng suốt mùa mưa ấy, chỉ cần nàng làm mực bắn lên trang giấy là lập tức gõ đầu bút xuống bàn, vậy mà giờ nàng ngồi đợi mãi vẫn không nghe hắn nhắc được một lần.
+
+- Ta đã quên.
+
+Thư Dao cúi đầu.
+
+- Không phải riêng lời sư phụ, — hắn nói tiếp. — Mùa đông ấy, cả quãng chép kinh… ta không tìm được gì. Trước đó và sau đó vẫn nhớ.
+
+- Còn những chuyện khác?
+
+- Chưa biết.
+
+Nàng đưa tay kia đỡ lấy sống kiếm. Bàn tay hắn níu nàng trước cửa, cái bóng chắn dưới uy áp Kim Đan, nàng đều nhớ rõ đến mức không dám nhắm mắt, còn hắn đã để lại những gì trong tiếng nổ ấy, ngay chính hắn cũng không biết.
+
+- Vậy muội kể lại. Chuyện ở hành lang, chuyện chép kinh, muội đều nhớ.
+
+- Muội vừa kể, ta nghe rồi.
+
+Hắn ngừng một chút, giọng thấp đi.
+
+- Nhưng trong đầu vẫn không có. Như chuyện của người khác.
+
+Nàng hé miệng, lời an ủi tới môi rồi lại thôi. Nàng có thể kể hết mùa đông, kể cả những nét than trên nền, nhưng đoạn sư phụ níu cổ tay hắn thì chỉ nghe được mấy tiếng “nếu sau này”.
+
+- Trước khi đi, người đã dặn việc gì đó, — Tạ Cửu nói. — Ta nhận lời, rồi quên mất.
+
+Thư Dao chạm vào túi áo, ngón tay gặp cạnh ngọc cứng dưới lớp vải bọc. Phần hạ hắn vẫn đọc được, phần thượng còn nguyên, vậy mà nàng chẳng biết phải tìm lời dặn cuối ấy ở đâu.
+
+Nàng kéo kiếm lại gần, để thân thép khỏi chạm vào vách.
+
+- Chuyện nào muội biết, muội sẽ kể. Còn đoạn ấy, mình chưa biết thì cứ để là chưa biết. Huynh đừng tự đoán rồi làm theo.
+
+Lần này hắn không bảo nàng lo quá.
+
+Suốt ngày hôm ấy, Thư Dao dò lối suối, tìm quả dại, chỉ ra ngoài khi không thấy bóng người. Những lúc nghỉ, nàng để kiếm nơi mát. Có khi hắn hỏi một chuyện cũ, nàng kể đúng chỗ mình nhớ rồi dừng, không hỏi nữa rằng hắn đã nhớ ra chưa.
 
 Sáng thứ ba, quanh thác không có dấu người mới. Thư Dao vá lại đường chỉ túi ngọc bằng sợi rút từ gấu áo, kéo thử hai lần rồi thay lớp vải bọc kiếm.
 
@@ -896,7 +1030,7 @@ Nàng ngồi xuống mép giường, ngọn đèn leo lét trên bàn.
 
 - Bao lâu mới nói lại được?
 
-- Chưa thử. Có thể nhiều ngày. Có thể hụt một chỗ nhớ.
+- Chưa thử. Có thể nhiều ngày. Có thể quên thêm.
 
 Thư Dao ngẩng lên, nhìn khoảng trống nơi từng thấy mặt hắn dưới trăng.
 
@@ -946,7 +1080,9 @@ Thư Dao cất chén trà, đọc những thư mới từ trung tâm. Chưa có 
 
 Tạ Cửu mất nhiều ngày mới đọc trọn một đoạn khẩu quyết.
 
-Có lần hắn ngừng ở giữa, nàng đọc tiếp được nửa câu. Hắn bảo đang đợi nàng tự nhớ, nàng không cãi, cứ đọc hết rồi luyện, ngày sau hắn lại tự nhắc đúng câu ấy bằng giọng hơi cáu.
+Có lần hắn ngừng ở giữa, nàng đọc tiếp được nửa câu. Hắn bảo đang đợi nàng tự nhớ, nàng không cãi, nhưng bàn tay giữ chuôi đã lạnh đi. Những quãng đời hắn bỏ lại sau tự bạo còn chưa tìm được, bây giờ đến khẩu quyết vẫn dùng hằng ngày cũng có chỗ đứt.
+
+Ngày sau hắn lại tự nhắc đúng câu ấy bằng giọng hơi cáu. Nàng đọc theo, không đem chuyện cũ ra hỏi thử.
 
 Thư Dao nghe tới hết, chưa vội buông chuôi.
 
@@ -1242,7 +1378,7 @@ Hắn biết nàng hỏi gì. Từ khi kiếm được bồi và chăm đều, n
 
 Đao ép xuống, nàng đỡ, chân trượt sạt trên bụi.
 
-- Có thể hụt trí nhớ. Không chỉ một câu.
+- Có thể mất thêm trí nhớ. Không chỉ một câu.
 
 Nàng siết chuôi, thoáng muốn bỏ xe. Sau lưng Trần Phúc lại gọi tên người làm, kẻ dưới gầm vẫn chặn lối, buông hàng cũng chưa đưa được họ ra.
 
@@ -1334,7 +1470,7 @@ Thư Dao đứng bên máng ngựa, một tay giữ cương, một tay nắm chu
 
 Nàng đọc, hắn đáp đúng sau một khoảng chậm. Đợi trả tiền nước và dắt ngựa qua khỏi quán, Thư Dao mới cúi sát xuống.
 
-- Huynh quên chỗ đó?
+- Huynh lại quên chỗ đó?
 
 - Chưa chắc.
 
@@ -1482,7 +1618,15 @@ Hắn lặng lâu tới mức nàng suýt hỏi nữa.
 
 - Đỡ khó chịu một chút.
 
-Thư Dao nới những ngón siết chuôi, nhìn hàng chữ kế rồi định đọc, hắn đã gọi chờ.
+Nàng chờ thêm, rồi khẽ hỏi:
+
+- Lời sư phụ dặn riêng, huynh có nhớ ra chút nào không?
+
+Thanh kiếm dưới tay im một lúc.
+
+- Vẫn chưa.
+
+Thư Dao cúi đầu, ngón cái vuốt qua chỗ vải đã sờn quanh chuôi. Một lát sau, nàng nhìn hàng chữ kế, vừa định đọc thì hắn đã gọi chờ.
 
 Nàng ngẩng lên, nhớ đêm sư phụ bảo hắn đọc trước rồi phần hạ biến mất. Bàn tay áp ngọc còn chưa rời thì hắn nói tiếp:
 
